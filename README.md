@@ -13,4 +13,4 @@ Link your account in the browser❤️
 And use it❣️
 # LINK https://goo.su/tindrpltnm
 
-![image alt](https://i.postimg.cc/v8XZMN2x/tinder-platinum.png)
+![image alt](https://i.postimg.cc/LspGqn94/Is-Tinder-platinum-worth-it.webp)
